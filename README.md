@@ -1,0 +1,1 @@
+A version of the Tabernacle FAQ page in Spanish
